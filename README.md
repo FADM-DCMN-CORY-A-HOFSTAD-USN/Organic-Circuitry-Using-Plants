@@ -1,0 +1,2 @@
+# Organic-Circuitry-Using-Plants
+Plants have unique processing, memory storage, and data modification abilities. Root networks transmit electricity through plant root systems. By indexing plants by circuit or gate characteristics, we create advanced circuits and root networks that expand through nations and forests. Earth's magnetic poles are used to generate electricity at Giza in Egypt by bridging the positive and negative terminals from a northern root system and southern root system.
