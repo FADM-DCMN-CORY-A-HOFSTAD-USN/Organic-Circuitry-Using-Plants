@@ -14,7 +14,7 @@ The **Giza Quantum Integration Project** is a global energy initiative designed 
 By leveraging the unique geophysical "offset" of the Giza Plateau and the biological conductivity of ancient root networks, this project establishes a permanent, zero-loss energy node capable of powering the global infrastructure without reliance on nuclear materials or fossil fuels.
 
 **Lead Architect:** Dr. Correo Andrew Hofstad  
-**Strategic Partners:** Jacob Rothschild, Fox Rothschild LLP, NVidia  
+**Strategic Partners:** Fox Rothschild LLP, NVidia  
 **Funding Entity:** LOHIM
 
 ---
